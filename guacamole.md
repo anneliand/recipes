@@ -1,6 +1,6 @@
 # Guacamole
 ## Ingredients
-* avocado
-* lime
-* salt
+* avocado - 19kr
+* lime - 14 kr
+* salt - 1 kr
 ## Instructions 
